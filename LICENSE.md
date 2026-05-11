@@ -1,4 +1,4 @@
-#  
+#  no-ban life together rp Scripts is the best life together rp Script, featuring unlimited stamina and one-hit kill. Safe and powerful for all your
 
 
 
